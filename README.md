@@ -1,2 +1,0 @@
-# PDV Mágico Pro ✨
-
